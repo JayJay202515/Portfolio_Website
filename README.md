@@ -1,3 +1,2 @@
 
-ESHAN GUPTA'S PORTFOLIO WEBSITE.❤💖
-
+Be sure to join the main discord https://discord.gg/KeYDNa8G
